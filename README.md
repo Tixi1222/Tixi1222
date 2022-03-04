@@ -1,6 +1,9 @@
 »» Hi, I’m @Tixi1222 «« 
+
 ╰┈➤ Hungarian
+
 ╰┈➤ I’m interested in drawing, discord bots coding.
+
 ╰┈➤ I’m currently learning programming 
 
 <!---
